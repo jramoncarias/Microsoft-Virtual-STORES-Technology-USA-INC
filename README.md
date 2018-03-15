@@ -1,0 +1,2 @@
+# Microsoft-Virtual-STORES-Technology-USA-INC
+Empresa de Capital aberto, subsidiária da Microsoft Corporation e demais empresas de Tecnologia de software e hardware reunidas pelo NAI.org.us pela Missão Digital na Aliança Digital, com finalidades e obejtivos focados na entrega de soluções para o IMPULSIONAMENTO dos Ne´gócios Digitais, bem como para os problemas administrativos e operaciopnais nas pequenas e médias empresas Públicas e Privadas.
